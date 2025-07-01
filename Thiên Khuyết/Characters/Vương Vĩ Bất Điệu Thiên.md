@@ -13,10 +13,10 @@
 - Bởi vì lý do trên nên không thường đeo trang sức trên người
 - Có đôi mắt hổ phách theo tiên đoán là gây ra thảm họa cho đế quốc nên bị kỳ thị và ghét bỏ
 ## Năng lực
-- Băng: Nguyên tố hiếm có chưa từng xuất hiện trong sử sách [[Cửu Vong Bắc Thần đế quốc]] 
+- Băng: Nguyên tố hiếm có chưa từng xuất hiện trong sử sách Cửu Vong Bắc Thần đế quốc
 - Sau khi học tập từ nhiều vương quốc, thay vì sử dụng gậy phép hay quyền trượng được phù hộ để khuếch đại năng lực, Thiên trực tiếp tạo ra thanh kiếm vĩnh cửu từ băng
 ## Thân phận
-- Tứ hoàng tử hoàng thất Vương của [[Cửu Vong Bắc Thần đế quốc]]
+- Tứ hoàng tử hoàng thất Vương của Cửu Vong Bắc Thần đế quốc
 - Là đứa con ngoại lai của thần linh Bắc quốc
 - Vốn là một quả trứng linh hồn sinh ra từ nơi lạnh giá nhất Bắc quốc, tên là Tuyệt Hàn, nằm ở Cực Bắc đất nước, nơi mà rất ít người có thể đặt chân vào do đây là nghĩa địa của những tà thần bị giết trước kia, khi đó xảy ra chiến tranh giữa rồng và thần linh nên một nhóm đã xâm nhập vào đây, dù đã chết dưới cái giá lạnh khắc nghiệt nhưng đã thành công thức tỉnh quả trứng, nhưng giữa chừng quả trứng lại bị một ngoại lực thay đổi, đẩy vào bào thai của [[Triệu Dung Quỳnh]]
 - Sau khi bỏ trốn trở thành khách vãng lai
@@ -53,7 +53,7 @@
 ## Quan hệ với những nhân vật khác
 - Trước coi [[Bạch Vô Quân Dao]] như muội muội thông thường, sau nảy sinh tình cảm và đến bên nhau
 - Coi [[Tử Yên]] như huynh ruột, gia đình của mình
-- Đang làm việc dưới tư cách là cận vệ riêng của trưởng công chúa [[Diệp Tuyết Linh]] từ [[Thiên Tây Triêu Nhật đế quốc]]
+- Đang làm việc dưới tư cách là cận vệ riêng của trưởng công chúa [[Diệp Tuyết Linh]] từ Thiên Tây Triêu Nhật đế quốc
 - Là anh trai cùng mẹ khác cha của [[Vương Lạc Hồ Tinh Điệp]]
 ## Quá khứ
 - Hồi nhỏ là một mặt trời nhỏ, ham học hỏi, đáng yêu, ấm áp dễ gần, hay sưởi ấm và quan tâm tới người khác
