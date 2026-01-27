@@ -4,8 +4,8 @@
 - **Tên nhũ danh**: Vương Vĩ Bất Điệu Thiên (Đầu đuôi không xứng để trời chọn làm vua/ Vị vua từ chối sự tốt đẹp trời ban)
 - **Tên tự:** Vương Tiêu Tịch
 	- Tiêu - do cha đỡ đầu đặt: "Hãy sống tiêu dao, tự do, không ràng buộc"
-	- Tịch - do chính Thiên tự đặt: "Người dạy con tự do đã không còn, chỉ còn sự tĩnh lặng này đồng hành với con"
-	- **Tên thường dân:** Bạc Mộ
+	- Tịch - do chính Thiên tự đặt: "Người dạy ta tự do đã không còn, chỉ còn sự tĩnh lặng này đồng hành với ta"
+- **Tên thường dân:** Bạc Mộ
 ## Ngoại hình
 - Hồi nhỏ nuôi mái dài để che đi đôi mắt bị nguyền rủa
 - Mái tóc đen dài vấn cao lên bằng sợi dây đỏ, sau khi trở thành kẻ bị truy nã thì cắt tóc ngắn
@@ -21,10 +21,18 @@
 - Vốn là một quả trứng linh hồn sinh ra từ nơi lạnh giá nhất Bắc quốc, tên là Tuyệt Hàn, nằm ở Cực Bắc đất nước, nơi mà rất ít người có thể đặt chân vào do đây là nghĩa địa của những tà thần bị giết trước kia, khi đó xảy ra chiến tranh giữa rồng và thần linh nên một nhóm đã xâm nhập vào đây, dù đã chết dưới cái giá lạnh khắc nghiệt nhưng đã thành công thức tỉnh quả trứng, nhưng giữa chừng quả trứng lại bị một ngoại lực thay đổi, đẩy vào bào thai của [[Triệu Dung Quỳnh]]
 - Sau khi bỏ trốn trở thành khách vãng lai
 ## Tính cách
+
+### Tính cách cốt lõi (Core Personality)
+Bảo vệ người khác, dù phải tự hủy đi bản thân.
+- Lõi: Bảo hộ
+- Biểu hiện lành mạnh: Hy sinh, kiên định, trách nhiệm
+- Biểu hiện méo mó: Kiểm soát, tự hủy, tàn nhẫn 
+- Điều kích hoạt: Mất mát người thân
+- Điều chữa lành: Được chọn ở lại, không bị bỏ rơi
 ### Bề mặt
 - Dễ đem lại ấn tượng xa cách, khó gần do luôn dùng khăn lụa trắng bịt kín đôi mắt bị nguyền rủa lại
 - Chỉ thân cận với người thân thiết, với người lạ thì xa cách, trưng ra bản mặt lịch sự
-- Có cái đầu lạnh, nghĩ thì nhiều nói thì ít, trầm tĩnh, trông có vẻ lý trí nhưng rất dễ mất kiểm soát khi liên quan tới người thân
+- Có cái đầu lạnh, nghĩ thì nhiều nói thì ít, trầm tĩnh, trông có vẻ lý trí nhưng rất dễ mất kiểm soát khi liên quan tới người thân yêu
 - Khá là bi quan, luôn nghĩ tới tình huống xấu nhất, quyết đoán 
 - Thời gian đã tôi luyện Thiên trở nên khéo léo trong cách hành xử
 - Đã hứa là sẽ làm, lời hứa của Thiên như vàng
@@ -79,6 +87,8 @@
 	-> Chuyển từ nạn nhân sang chủ động, từ người bị thương trở thành kẻ mang thương tích làm vũ khí
 - Thù hận, muốn hủy diệt Bắc quốc
 	- [[Trí Khoa]] bị giết
+	- Bị hoàng tộc và người dân ghét bỏ, xa lánh
+	- Tử Yên và Quân Dao bị làm hại
 - Muốn thay đổi vận mệnh bị nguyền rủa
 	- Bái [[Kim Dạ Tàng Long]] làm sư phụ, chịu đủ cực hình và hành hạ, phải học rất nhiều để có thể thay đổi vận mệnh
 	- Bị ép phải lựa chọn giữa bảo vệ người thân yêu và đắm chìm và thù hận quá khứ
@@ -96,7 +106,7 @@
 - Hồi nhỏ là một mặt trời nhỏ, ham học hỏi, đáng yêu, ấm áp dễ gần, hay sưởi ấm và quan tâm tới người khác
 	- Được [[Trí Khoa]] dạy chữ, và ông cho mượn sách để đọc, Thiên cũng thường nghịch ngợm lén mò tới Quốc Tử Giám, ngồi một góc ít ai tới nghe giảng
 	- Bình thường 8 tuổi là bộc lộ năng lực, nhưng 7 tuổi trong một lần bị đẩy xuống hồ trong điện, Thiên đã sợ hãi vùng vẫy và tạo ra mảnh băng rồi để bản thân bị cứa, khi bị lôi lên thì sốt tới mê man, sau đó đóng băng cả không gian đang nằm
-	- Để che giấu năng lực dị biệt của mình, [[Trí Khoa]] đã cho Thiên một cái vòng tay, đeo vào có thể giúp Thiên kiểm soát năng lực bị trào ra một cách mất kiểm soát của mình
+	- Để che giấu năng lực dị biệt của mình, [[Trí Khoa]] đã cho Thiên một cái vòng tay, đeo vào có thể giúp Thiên kiểm soát năng lực bị trào ra một cách mất kiểm soát của mình (Trí Khoa có người quen bên chế tạo vật phẩm này)
 	- [[Trí Khoa]] từng tặng Thiên chân dung của [[Triệu Dung Quỳnh]], Thiên cũng từng tìm đến mẹ, nhưng chỉ dám đến nhìn mẹ và em gái [[Vương Lạc Hồ Tinh Điệp]] từ xa
 	- 
 - Sau khi trải qua bị mẹ ghẻ lạnh, bị tay sai ngó lơ, bị anh em bắt nạt, Thiên trở nên trầm tính và tự co mình lại

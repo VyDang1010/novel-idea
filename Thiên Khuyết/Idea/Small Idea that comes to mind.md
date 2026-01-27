@@ -1,0 +1,12 @@
+- Năm Ly nắm quyền hoàng đế đã đặt niên hiệu là Vô Tự (cô độc không có ai để dựa vào, chỉ tin vào chính quyền lực của mình)
+- Với sự giúp đỡ của điện thờ để có thể xóa bỏ năng lực, đem họ xuống làm thường dân, hoặc là gán ấn lên người, để tạm thời vô hiệu hóa năng lực của họ.
+- Sau Thiên tìm thấy một đứa trẻ mà hắn định rèn làm người lật đổ triều đình bấy giờ. Và đứa trẻ đấy là một thường dân, sở hữu sức mạnh được thần linh ban phước vô cùng mạnh mẽ.
+- Thiên bị kéo vào chiến tranh, từ tướng ở dưới đáy dần lên cao trở thành người chỉ huy, lôi kéo được một phe quý tộc (Cha của Dao) theo mình, nhưng sau đó nhanh chóng bị hoàng đế và những anh trai bãi nhiệm, đổ thành kẻ có tội và xóa đi mọi quyền hành vừa có được.
+
+- 20 tuổi là tuổi trưởng thành, được ban cho tên tự.
+- 20 tuổi sẽ được xướng tên trước mặt thần linh.
+- 9 tuổi là tuổi bắt đầu được bộc lộ hoặc đo lường năng lực.
+	-  7 tuổi Thiên đã đóng băng toàn bộ căn phòng nơi mình ở.
+	- 11 tuổi Dao mới bộc phát năng lực của mình, làm cháy chính ngôi nhà nơi mình lớn lên.
+	- 8 tuổi đột nhiên Tử Yên bộc lộ sức mạnh, nhánh mộc
+- 
