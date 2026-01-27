@@ -5,7 +5,7 @@
 - **Tên tự:** Vương Tiêu Tịch
 	- Tiêu - do cha đỡ đầu đặt: "Hãy sống tiêu dao, tự do, không ràng buộc"
 	- Tịch - do chính Thiên tự đặt: "Người dạy ta tự do đã không còn, chỉ còn sự tĩnh lặng này đồng hành với ta"
-- **Tên thường dân:** Bạc Mộ
+- **Tên thường dân:** Mộ Uyên (Chôn vui quá khứ)
 ## Ngoại hình
 - Hồi nhỏ nuôi mái dài để che đi đôi mắt bị nguyền rủa
 - Mái tóc đen dài vấn cao lên bằng sợi dây đỏ, sau khi trở thành kẻ bị truy nã thì cắt tóc ngắn
