@@ -8,7 +8,7 @@
 - **Tên thường dân:** Mộ Uyên (Chôn vui quá khứ)
 ## Ngoại hình
 - Hồi nhỏ nuôi mái dài để che đi đôi mắt bị nguyền rủa
-- Mái tóc đen dài vấn cao lên bằng sợi dây đỏ, sau khi trở thành kẻ bị truy nã thì cắt tóc ngắn
+- Mái tóc đen dài vấn cao lên bằng sợi dây đỏ, sau khi trở thành kẻ bị truy nã thì cắt tóc ngắn, dây đỏ thì buộc trên cổ tay
 - Gương mặt trắng trẻo phi giới tính, sở hữu vẻ đẹp khác xa so với anh em ruột thịt khiến nhiều người không nhịn được phải cảm thán đến cả đệ nhất mỹ nhân Trường Uyên Thành còn không sánh bằng, dễ bị hiểu lầm là nữ nhân
 - Bởi vì lý do trên nên không thường đeo trang sức trên người
 - Có đôi mắt hổ phách theo tiên đoán là gây ra thảm họa cho đế quốc nên bị kỳ thị và ghét bỏ
